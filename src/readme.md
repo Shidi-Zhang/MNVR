@@ -1,1 +1,0 @@
-MNVR model 
